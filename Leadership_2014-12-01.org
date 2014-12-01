@@ -1,0 +1,9 @@
+- Welcome
+- Stanford driving simulation
+- Updates
+  - Group leaders
+  - Committeess
+  - Team Membership (Kuszmaul)
+  - Build Season Scheduling
+- Code of conduct presentation (Rafi, James)
+- Lab hours
