@@ -4,4 +4,5 @@
   - Committeess
   - Code of conduct
 - Kickoff envoy convoy
+- Crab drive!
 - Lab hours
