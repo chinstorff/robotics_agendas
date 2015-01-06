@@ -1,0 +1,11 @@
+- Welcome
+- Updates
+  - Kickoff
+  - Schedule
+  - Slack
+  - Group leads
+  - Committeess
+  - Prototyping
+- Rules committee
+- Showcase Portable Trainer
+
