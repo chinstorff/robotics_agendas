@@ -5,5 +5,7 @@
   - Committeess
 - 971 visit
 - T-shirts
+- "Math" building
+- Google visit
 - Lab hours
 
