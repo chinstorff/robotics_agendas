@@ -1,0 +1,10 @@
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+  - "Math" building
+  - 971 visit
+  - T-shirts
+  - Journalism
+- Escondido Science Night
+- Lab hours
