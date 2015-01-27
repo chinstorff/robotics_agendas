@@ -1,0 +1,8 @@
+- Welcome
+- Updates
+  - Gunn visit
+  - People are sick
+  - Group leads
+  - Committeess
+- CalGames at Stanford?
+- Lab hours
