@@ -1,0 +1,10 @@
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+- Callan Associates
+- Madera
+  - Permission slips
+  - Parent meeting
+  - Transportation
+- Lab hours
