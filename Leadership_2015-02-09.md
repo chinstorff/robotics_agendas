@@ -1,0 +1,8 @@
+- Welcome
+- The Bus Test
+- Updates
+  - Group leads
+  - Committeess
+- Madera
+- End of Build Season potluck (info sent to parents. All groups MUST make a presentation on what they've been doing for the past six weeks)
+- Lab hours (super importante with days off of school)
