@@ -8,4 +8,4 @@
   - Prototyping
 - Rules committee
 - Showcase Portable Trainer
-
+- FIRST Choice with 971
