@@ -1,0 +1,7 @@
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+- Madera
+- End of Build Season potluck
+- Lab hours
