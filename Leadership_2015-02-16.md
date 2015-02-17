@@ -4,4 +4,5 @@
   - Committeess
 - Madera
 - End of Build Season potluck
+- Summer camp?
 - Lab hours
