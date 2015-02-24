@@ -1,0 +1,8 @@
+- Welcome
+- Updates
+  - Build Season is over
+  - End of Build Season potluck
+  - Group leads
+  - Committeess
+- What needs to happen before Madera?
+- Lab hours
