@@ -1,0 +1,8 @@
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+- What needs to happen before Madera?
+  - The Checklist!
+- Escondido Science Night
+- Lab hours
