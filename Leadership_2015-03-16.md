@@ -1,0 +1,11 @@
+- Welcome
+- Updates
+  - Escondido Science Night
+  - Party!
+  - Group leads
+  - Committeess
+- What needs to happen before SVR?
+- Jordan Demo Day
+- Duveneck Science Fair
+- Library for Summer Camp?
+- Lab hours
