@@ -1,0 +1,10 @@
+- Welcome
+- Course on mathematical logic?
+- Updates
+  - Group leads
+  - Committeess
+  - Duveneck Science Fair
+  - Jordan!
+- What needs to happen before SVR?
+  - The list!
+- Lab hours
