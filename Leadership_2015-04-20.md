@@ -1,0 +1,7 @@
+- Note taker
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+  - Jordan workshops
+- Power tool donation. Thank you?

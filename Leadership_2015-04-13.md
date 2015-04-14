@@ -1,0 +1,10 @@
+- Note taker
+- Welcome
+- SVR debrief part two
+- Updates
+  - Group leads
+  - Committeess
+  - Jordan workshops
+- Lip Dub
+- Looking forward: Leadership selection
+- Lab hours
