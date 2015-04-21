@@ -1,7 +1,13 @@
 - Note taker
 - Welcome
+- Course on mathematical logic?
 - Updates
   - Group leads
   - Committeess
   - Jordan workshops
 - Power tool donation. Thank you?
+- Mini classes
+- Pictures?!?!
+- Looking forward: Team Captain
+- Summer?!
+- Lab hours
