@@ -1,0 +1,12 @@
+- Note taker
+- Welcome
+- Updates
+  - Group leads
+  - Committeess
+  - MVRT
+  - Jordan workshops
+- Attendance
+- Stanford Pool Outreach
+- Looking forward: Team Captain
+- Looking forward: Leadership Meetings
+- Lab hours
